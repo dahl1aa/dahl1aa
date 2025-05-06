@@ -7,4 +7,4 @@
    
 　　　　˚　![o](https://64.media.tumblr.com/7372f5883936e481ee80bb97b04f9ec4/35847f8f4a170156-32/s75x75_c1/3d03eb1bd85027174b33c122958629f11e0d70f9.gifv)　　**qua**riji　♡⠀ ⊹ ࣪ ˖　        
 　　　　( ˘ ³˘)♥︎　ノ　![e](https://64.media.tumblr.com/7b03fff8c8e43cb2b91f6889cf8f2b4d/322e9f3f4642950d-06/s75x75_c1/cb4c99bcdabb33da208724aa22ddb240b83fb3f0.gifv)　⁺　𓈒  𐙚       
-         ヘ       ﹐ ⑅    ﹒ ꒷    ![a](https://64.media.tumblr.com/d1bf597f5b3106d9b2f2e664c189c960/35847f8f4a170156-97/s75x75_c1/a1ed008cbf12e38e5922662e13825a9551591a8c.gifv)
+         ヘ  　　 ﹐ ⑅　　 ﹒ ꒷    ![a](https://64.media.tumblr.com/d1bf597f5b3106d9b2f2e664c189c960/35847f8f4a170156-97/s75x75_c1/a1ed008cbf12e38e5922662e13825a9551591a8c.gifv)
