@@ -11,5 +11,5 @@
 
 ![meow](https://64.media.tumblr.com/3f27024d900545ebabff75c53d09d651/9daddf923761f6ec-f5/s400x600/aaa4838d986883bea43972ef80340245c99b9a51.pnj)
 
-　　　　　　　‿　　.　 ㅇ [rentry[(https://rentry.co/vampbloods)
+　　　　　　　‿　　.　 ㅇ [rentry](https://rentry.co/vampbloods)
 ![e](https://64.media.tumblr.com/82041ec2c61bf526ff355bb7b9248114/7abebd50498642e8-27/s75x75_c1/b04e8b95238ecf1bbe8f36c070dc939d8baa8f21.gifv)　 ‹𝟹 ‎ ⠀⠀ˑ˚₊
